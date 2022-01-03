@@ -1,5 +1,7 @@
 # Javohir Erkinaliyev
-[GitHub](https://github.com/Javohir-E) | [Telegram](http://t.me/Javohir_Erkinaliyev) | [Email](javohirerkinaliyev@gmail.com)
+[GitHub](https://github.com/Javohir-E) | [Telegram](http://t.me/Javohir_Erkinaliyev) | [Phone Number](+998903185560) 
+[Email](javohirerkinaliyev@gmail.com)
+
 
 
 EDUCATION
